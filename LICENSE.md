@@ -1,4 +1,4 @@
-# 
+# Personalizado isolated-margin trading bot modelos para Mac OS | Melhor isolated-margin trading bot modelos para PC Windows. Com execução de ordens de mercado e integração de API — otimizado para máximo desempenho em cada plataforma.
 
 
 
